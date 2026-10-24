@@ -43,7 +43,6 @@ Se observa uso de herramientas e investigación autonoma por parte del estudiant
 
 Muy buen aspecto de la calabaza
 
-Uso de sharp edge 	
 
 #### Aspectos a mejorar
 
